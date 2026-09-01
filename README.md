@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Andrea Jazmin Carlos Santisteban
+# 👋 ¡Hola! Soy Andrea Carlos Santisteban
 
 🎓 Estudiante de **Ingeniería de Informática y Sistemas**.
 
